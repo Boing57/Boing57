@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Boing57
+- 👀 I’m interested in apps developing and computer
+- 🌱 I’m currently a beginner
